@@ -1,0 +1,1 @@
+# mageworx-seo-veniapwa
